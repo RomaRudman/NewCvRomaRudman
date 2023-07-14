@@ -1,1 +1,1 @@
-https://Users/romarudman/Documents/CVRomaRudman.html
+https://romarudman.github.io/NewCvRomaRudman/cv
